@@ -1,3 +1,5 @@
-- 校级一等奖学金, 2022.  
+- 山东大学学业一等奖学金, 2023&2024.  
 
-- Outstanding Graduation Thesis, XXX University, 2023. 
+- 新百廿奖学金, 2023.
+
+- 玲珑集团社会奖学金，2024
